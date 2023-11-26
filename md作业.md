@@ -21,11 +21,6 @@
 - 身高183 
 - 绝世容颜<font size=3 color=red face="宋体"> 超级大帅哥！！！<font size=3 color=black face="宋体">
   
- ![Alt text](231F8C6AB27D74C0BF26EE126ED8FF6B.png)
-
-![Alt text](2D16360F1A126BCD1380BAD1D661E21C.png)
-![Alt text](D9D136F619D4FB0F221DBFEC92FA2533.png)
-![Alt text](QQ%E5%9B%BE%E7%89%8720231125232524.gif)![Alt text](QQ%E5%9B%BE%E7%89%8720231125233324.gif)
 
 
 ###链接：[绝美直拍](https://www.bilibili.com/video/BV1tu411Z7sz/ "跳舞视频")。
